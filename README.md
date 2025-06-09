@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @coderranjana
+# 👋 Hi, I’m @thetannux
 
 ### Creative Developer | Logic Enthusiast | Full-Stack Learner
 
